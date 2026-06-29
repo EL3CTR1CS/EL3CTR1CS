@@ -19,6 +19,6 @@
              <p align=center>  ㅤ </p>
                           <p align=center>  ㅤ </p>
                    <p align=center>  ㅤㅤㅤ </p>
-          ㅤㅤ ㅤㅤ    Always iwcaution because
-      <p align=center> </p>  ㅤ ㅤ  ㅤㅤi have mood swings ^_^,,,
+          ㅤㅤ ㅤㅤㅤㅤ    Always iwcaution because
+      <p align=center> </p>  ㅤ ㅤ ㅤㅤ ㅤㅤi have mood swings ^_^,,,
 
