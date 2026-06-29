@@ -8,8 +8,11 @@
    <p align=center>  ㅤㅤㅤ </p>
       <p align=center>  ㅤㅤㅤ </p>
    ㅤㅤ ㅤㅤ  <a href="https://rentry.co/displeases">rentry</a> ㅤㅤㅤㅤ<a href="https://hash8f2240.atabook.org">atabook</a>
-   <p align=center>  ㅤㅤㅤ </p>
+   <p align=center>   </p>
  ㅤㅤ ㅤㅤ  I use status properly :P
+   <p align=center>   </p>
+ㅤㅤ Please read rentry before 
+ㅤㅤ    <p align=center>    </p>ㅤㅤ interacting with me!
     </p>
     <p align=center>
   <img align="left"  width="640" alt="lele" src="https://file.garden/aG4uPTNO_Dlar84S/bbb.png" />      
