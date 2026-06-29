@@ -7,7 +7,7 @@
          <p align=center>  ㅤㅤㅤ </p>
    <p align=center>  ㅤㅤㅤ </p>
       <p align=center>  ㅤㅤㅤ </p>
-   ㅤㅤ ㅤㅤ  <a href="https://rentry.co/displeases">rentry</a> ㅤㅤㅤㅤ<a href="https://hash8f2240.atabook.org">atabook</a>
+   ㅤㅤ  <a href="https://rentry.co/displeases">rentry</a> ㅤㅤ<a href="https://hash8f2240.atabook.org">atabook</a> ㅤㅤ<a href="https://pronouns.cc/@polarvisioned">prn.cc</a>
    <p align=center>   </p>
  ㅤㅤ ㅤㅤ  I use status properly :P
    <p align=center>   </p>
