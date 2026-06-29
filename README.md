@@ -15,6 +15,6 @@
 ㅤㅤ    <p align=center>    </p>ㅤㅤ interacting with me!
     </p>
     <p align=center>
-  <img align="left"  width="640" alt="lele" src="https://file.garden/aG4uPTNO_Dlar84S/bbb.png" />      
+  <img align="left"  width="600" alt="lele" src="https://file.garden/aG4uPTNO_Dlar84S/342.png" />      
 
 
