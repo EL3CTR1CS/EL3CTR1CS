@@ -1,6 +1,6 @@
 <p align=center>
    <a href="https://hits.sh/github.com/EL3CTR1CS/"><img alt="Hits" src="https://hits.sh/github.com/EL3CTR1CS.svg?style=flat-square&label=(-m-)%20%CB%87&extraCount=13526&color=b08563&labelColor=97a676"/></a>  
-   <br> <sub>  cr meongzzan twt </sub>
+   <br> <sub>  cr meongzzan twt pfp+bkg bubble</sub>
      <br>
      <p align=center>
 <img align="left" width="500" alt="lele" src="https://file.garden/aG4uPTNO_Dlar84S/bkdktext1.gif" />
