@@ -15,6 +15,9 @@
 ㅤㅤ    <p align=center>    </p>ㅤㅤ interacting with me!
     </p>
     <p align=center>
-  <img align="left"  width="600" alt="lele" src="https://file.garden/aG4uPTNO_Dlar84S/342.png" />      
-
+  <img align="right"  width="540" alt="lele" src="https://file.garden/aG4uPTNO_Dlar84S/342.png" />
+             <p align=center>  ㅤ </p>
+                   <p align=center>  ㅤㅤㅤ </p>
+          ㅤㅤ ㅤㅤ    Always iwcaution because
+      <p align=center> </p>  ㅤ ㅤ  ㅤㅤi have mood swings ^_^,,,
 
