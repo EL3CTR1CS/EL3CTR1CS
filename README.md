@@ -5,8 +5,8 @@
      <p align=center>
 <img align="left" width="500" alt="lele" src="https://file.garden/aG4uPTNO_Dlar84S/bkdktext1.gif" />
          <p align=center>  ㅤㅤㅤ </p>
-   <p align=center>  ㅤㅤㅤ </p>
-      <p align=center>  ㅤㅤㅤ </p>
+   <p align=center>  ㅤㅤㅤ </p>  ㅤㅤ  ㅤ ㅤㅤ  I'm an adult — 18
+      <p align=center>  ㅤㅤㅤ </p> 
    ㅤㅤ  <a href="https://rentry.co/displeases">rentry</a> ㅤㅤ<a href="https://hash8f2240.atabook.org">atabook</a> ㅤㅤ<a href="https://pronouns.cc/@polarvisioned">prn.cc</a>
    <p align=center>   </p>
  ㅤㅤ ㅤㅤ  I use status properly :P
